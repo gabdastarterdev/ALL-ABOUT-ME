@@ -27,3 +27,5 @@ I started watchin. After 3 hours of learning some code i learn how to print on P
 I got more curious and decided i will dedicate my whole life on coding!
 
 So this is me from 9/10/2024 - 10/18/2024. Still learning how to code!
+
+- By Gab! 10/19/2024
